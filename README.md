@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mahadevathani976@gmail.com**
 
-- 📄 Know about my experiences ["C:\Users\Mahadev Athani\Downloads\Jake_s_Resume__Anonymous___4_ (7).pdf"]("C:\Users\Mahadev Athani\Downloads\Jake_s_Resume__Anonymous___4_ (7).pdf")
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
